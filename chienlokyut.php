@@ -1,0 +1,1 @@
+totoo yon promise lasang kamatis
